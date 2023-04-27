@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @marcelapaola
+- 👀 I’m interested in flowers, cats, teaching and cryptos!
+- 🌱 I’m currently learning about blockchains
+- 💞️ I’m looking to collaborate on IDK yet
